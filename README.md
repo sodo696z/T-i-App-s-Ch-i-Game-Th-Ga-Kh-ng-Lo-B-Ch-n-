@@ -47,3 +47,14 @@ Website: https://sodo696z.com
 Phone: 0909533333
 Email: contact@sodo696z.com
 #sodo #sodocasino #sốđỏ_casino
+https://500px.com/photo/1102305222/z5938711692417_3c70aafe76e1d59967180b930eeefefc-by-adelle-schank
+https://www.pinterest.com/pin/1051801688021551035
+https://sodo696z.blogspot.com/2024/10/tai-app-so-o-choi-game-tha-ga-khong-lo.html
+https://github.com/sodo696z/T-i-App-s-Ch-i-Game-Th-Ga-Kh-ng-Lo-B-Ch-n-/blob/main/README.md
+https://sites.google.com/view/sodo696z/home/18
+http://so697z.xim.tv/tin-tuc/tai-app-so-do-choi-game-tha-ga-khong-lo-bi-chan-new83556.html
+https://www.notebook.ai/documents/1446503
+https://x.com/sodo696z8566/status/1848747665548579114
+https://band.us/band/96481707/post/19
+https://sodo696z.bcz.com/2024/10/22/tai-app-so-do-choi-game-tha-ga-khong-lo-bi-chan/
+https://zenwriting.net/u011iaxx5e
